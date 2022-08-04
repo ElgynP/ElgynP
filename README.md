@@ -1,5 +1,5 @@
-### Hello Beautiful People 👋
-Im currently working on building more projects for my own practice and resume. Im open to all tips and suggestions for navigating this journey and hope to join
+### Hello People 👋
+Im currently working on building more projects and love it here. Im open to all tips and suggestions for navigating this journey and hope to join
 the industry soon.
 
 <!--
